@@ -1,1 +1,0 @@
-# meralco ng bayan
